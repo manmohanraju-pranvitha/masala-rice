@@ -1,0 +1,3 @@
+take a pan add chilli,jeera,mustard seeds,oil.
+after some time add rice (quantity needed) to that pan and mix well and serve..
+yummy and healthy masala rice ready...

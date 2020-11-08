@@ -1,0 +1,1 @@
+ingrediets:rice,mustard seeds,jeera,chilli(red/green)urad dal,oil,turmeric;
